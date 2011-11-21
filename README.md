@@ -1,5 +1,0 @@
-Title
-=
-
-Date / Date / Date
--
